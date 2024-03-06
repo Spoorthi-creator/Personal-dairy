@@ -1,1 +1,1 @@
-# Personal-dairy
+# My-Journal
